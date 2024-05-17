@@ -3,7 +3,7 @@
 - 🌱 To aprendendo HTML, Banco de Dados, e ensino médio
 - 💞️ To a trabalhar na BRF, daora né
 - 📫 Me chama no discord, insta ou whatsapp, mas prefiro discord (batatinha quando nasce)
-- 😄 Mané pronome, me chama de Croisant
+- 😄 Mané pronome, me chama de Croissant ou QUASO
 - ⚡ Fato daora? Sla, minha rotina é chata =P
 
 <!---
